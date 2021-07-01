@@ -18,6 +18,7 @@ This freak is always reading everything I write. This fucking obessed jealous li
 Probably also somehow got my twitter banned, making them believe I was "promoting self-harm/suicide", it wouldn't suprise me.
 Nothing screams cowardice more then a jealous man harassing someone while hiding behind anonimity.
 
+
 I'm done. I'm not going to make a new twitter account.
 I'm not going to be maintaing a blog on github.
 I'm not going to update my new website.
