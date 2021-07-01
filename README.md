@@ -1,15 +1,20 @@
 # stalkers_suck
 
 I'm done.
-Had a few really bad days.
+
+Had a few really bad days.  
 Told HR is was resigning. Was just ready to give in to the darkness.
 I feel so completely alone sometimes.
+
 Sometimes, when I have a really bad time, I wish I still had a twitter account.
 Even if it was to write depressing rants.
 Fuck, even if it was to show self-harm pics, because atleast then I would feel a little less alone in the distress.
 When I self-harm, it's usually because I'm having really dark thoughts and I hope none of you ever find out what's that's like, being alone in apartment with those.
+
 I ordered a prepaid US sim card today, so I could bypass the twitter algorithm and make a new account.
 It probably wouldn't have even worked, I've tried to make an account like 6 times already, I just get insta banned the moment I tweet anything.
+But I changed my mind. This is what people want and I realized it's not my loss.
+
 I don't know about twitter, but I do know a stalker has gotten my blog banned.
 I know he has done it many times before. Everytime I've posted pics of my chest, he reports them.. even without self-harm. 
 I've had my blog put behind an adult content warning in the past, I've had posts censored.. and now I got my entire blog banned.
