@@ -24,7 +24,7 @@ I'm not going to be maintaing a blog on github.
 I'm not going to update my new website.
 I'm just going to vanish from the internet.
 This is what you people want right? 
-You'll still see me on the acknowledgement page. Check this month's patch tuesday.
+You'll still see me on the acknowledgement page. Check this month's patch tuesday (July).
 I'll still be finding bugs. And you'll still be jealous pathetic little men.
 
 It's all your loss. 
