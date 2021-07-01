@@ -37,3 +37,5 @@ It's not my loss.
 I'm going to include screenshots of e-mails from this stalker (the few I havn't deleted), I know he lives in the same country as me, this idiot didn't know guerilla mail actually discloses IP in the header.
 I may vanish from the internet, but I'm going to put this pathetic jealous man on display first.
 You know where I live, I'm not hard to find, if you ever grow some balls, come find me, I look forward to that day.
+
+(ps: You can also thank shitheads like this for me never replying to e-mails or DMs (when I still had my twitter) .. but I do appreciate all the positives messages I've gotten in the past, even if I never replied, it's not personal, just hard to trust people on the internet)
