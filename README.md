@@ -33,6 +33,6 @@ I'll keep learning more.
 But I won't ever share anything anymore.
 It's not my loss. 
 
-I'm going to include screenshots of e-mails from this stalker, I know he lives in the same country as me, this idiot didn't know guerilla mail actually discloses IP in the header.
+I'm going to include screenshots of e-mails from this stalker (the few I havn't deleted), I know he lives in the same country as me, this idiot didn't know guerilla mail actually discloses IP in the header.
 I may vanish from the internet, but I'm going to put this pathetic jealous man on display first.
 You know where I live, I'm not hard to find, if you ever grow some balls, come find me, I look forward to that day.
