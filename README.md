@@ -53,3 +53,5 @@ You know where I live, I'm not hard to find, if you ever grow some balls, come f
 Oh, and dear stalker, I know you'll read this. You pathetic creep. Half the reason I'm putting this out here.
 
 (ps: You can also thank shitheads like this for me never replying to e-mails or DMs (when I still had my twitter) .. but I do appreciate all the positives messages I've gotten in the past, even if I never replied, it's not personal, just hard to trust people on the internet)
+
+pps: don't bother sending e-mails anymore to the one e-mail of mine that is public. I don't use that one anymore. Not giving cowards a channel to get to me. 
