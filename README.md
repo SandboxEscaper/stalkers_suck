@@ -34,7 +34,7 @@ I'll keep learning more.
 But I won't ever share anything anymore.
 It's not my loss. 
 
-I'm going to include screenshots of e-mails from this stalker (the few I havn't deleted), I know he lives in the same country as me, this idiot didn't know guerilla mail actually discloses IP in the header.
+I'm going to include screenshots of e-mails from this stalker (the few I havn't deleted), I know he lives in the same country as me, this idiot didn't know guerilla mail actually discloses IP in the header. This idiot tries to make it look like it's different people sending these e-mails. But he always uses the same insults like "you'll never pass" (i.e meaning I'll never look like a woman.. a way to insult trans people) .. I showed my therapist these e-mails, this person does seem to have given "being trans" a lot of thought, maybe he's just some angry bitch hiding in the closet or some shit.. if you just hate someone you don't harass them for over 3 years. This has to be pure jealousy and obsession.
 I may vanish from the internet, but I'm going to put this pathetic jealous man on display first.
 You know where I live, I'm not hard to find, if you ever grow some balls, come find me, I look forward to that day.
 
