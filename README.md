@@ -24,6 +24,12 @@ This freak is always reading everything I write. This fucking obessed jealous li
 Probably also somehow got my twitter banned, making them believe I was "promoting self-harm/suicide", it wouldn't suprise me.
 Nothing screams cowardice more then a jealous man harassing someone while hiding behind anonimity.
 
+I wish people like this would be held accountable. When my twitter was banned because I freaked out by an e-mail from Microsoft legal team, saying that I was being investigated for disclosing vuln details.. I was sure I was going to get fired back then. I was ready to carry out "my plan", packed my backpack and the rope I was going to use to end it.
+Right at that moment that stalker sent me another abusive e-mail. He knew I was struggling because this creep was reading everything.
+For what it's worth, if my manager hadn't talked to me later, I wouldn't be here anymore, wether you believe that or not, I don't care.
+If this creep is doing this to me, he is also doing it to other people. 
+It's a really good thing that he is a coward, hiding, because I wouldn't go to the cops, I'll be a fucking polar bear.
+It didn't feel like harassment at the time, it literally felt like an attempt on my life.
 
 I'm done. I'm not going to make a new twitter account.
 I'm not going to be maintaing a blog on github.
