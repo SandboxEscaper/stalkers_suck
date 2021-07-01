@@ -10,6 +10,7 @@ Sometimes, when I have a really bad time, I wish I still had a twitter account.
 Even if it was to write depressing rants.
 Fuck, even if it was to show self-harm pics, because atleast then I would feel a little less alone in the distress.
 When I self-harm, it's usually because I'm having really dark thoughts and I hope none of you ever find out what's that's like, being alone in apartment with those.
+I know a lot of people think I do it for attention, but I don't, it was my way of coping with it. I still do self-harm, but now a days, I just don't tell anyone. It was never for attention and I don't care what people think.
 
 I ordered a prepaid US sim card today, so I could bypass the twitter algorithm and make a new account.
 It probably wouldn't have even worked, I've tried to make an account like 6 times already, I just get insta banned the moment I tweet anything.
