@@ -3,7 +3,7 @@
 I'm done.
 
 Had a few really bad days.  
-Told HR is was resigning. Was just ready to give in to the darkness.
+Told HR I was resigning. Was just ready to give in to the darkness.
 I feel so completely alone sometimes.
 
 Sometimes, when I have a really bad time, I wish I still had a twitter account.
